@@ -1,1 +1,0 @@
-# Matem-tica-Kaic OI
